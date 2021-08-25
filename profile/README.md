@@ -41,9 +41,9 @@ Check out our repositories for more!
 
 ## 💬 Connect with Us  
 We’d love to hear from you!  
-- **Discord**: [Join our server](#)  
+- **Discord**: [Join our server](https://discord.gg/x7CR9jKayd)  
 - **Twitter**: [Follow us](#)  
-- **Email**: [contact@khc.com](mailto:contact@khc.com)  
+- **Email**: [contact@khc.com](mailto:ekrishnachaitanya2004@gmail.com)  
 
 Let’s collaborate and shape the future of blockchain together! 💡  
 
