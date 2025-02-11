@@ -43,7 +43,7 @@ Check out our repositories for more!
 We’d love to hear from you!  
 - **Discord**: [Join our server](https://discord.gg/x7CR9jKayd)  
 - **Twitter**: [Follow us](#)  
-- **Email**: [contact@khc.com](mailto:ekrishnachaitanya2004@gmail.com)  
+- **Email**: [contact@khc.com](mailto:kryptohasherscommunity@gmail.com)  
 
 Let’s collaborate and shape the future of blockchain together! 💡  
 
