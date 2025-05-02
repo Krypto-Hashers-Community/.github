@@ -21,7 +21,7 @@ You’re in the right place. 🚀
 We’d love to hear from you!  
 - **Discord**: [Join our server](https://discord.gg/x7CR9jKayd)  
 - **Twitter**: [Follow us](#)  
-- **Email**: [contact@khc.com](mailto:kryptohasherscommunity@gmail.com)  
+- **Email**: [contact@khclove.me](mailto:kryptohasherscommunity@gmail.co)  
 ---  
 
 _This community thrives on your contributions and creativity. Thank you for being a part of Krypto Hashers Community!_  
